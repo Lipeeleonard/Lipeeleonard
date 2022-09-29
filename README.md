@@ -1,5 +1,5 @@
 - 👋 eae eu sou @Lipeeleonard
-- Estou enteressado em vagas de aprendiz de TI
+- Estou interessado em vagas de aprendiz de TI
 - estou atualmete cursando tecnico em desenvolvimentos de sistemas.
 - 📫 How to reach me ...
 
